@@ -1,1 +1,1 @@
-Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
+Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
