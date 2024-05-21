@@ -1,1 +1,1 @@
-Beyoncé's surprise self-titled album release on iTunes in 2013 set a new standard for music drops, with no prior announcement or promotion.
+Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
