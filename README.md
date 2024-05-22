@@ -1,1 +1,1 @@
-Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
+The soundtrack for the film "O Brother, Where Art Thou?" was released in 2000 and became a surprise success, winning the Grammy Award for Album of the Year in 2002.
