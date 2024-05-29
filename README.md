@@ -1,1 +1,1 @@
-Taylor Swift's transition from country to pop music was solidified with the release of her album "1989" in 2014, featuring chart-toppers like "Shake It Off" and "Blank Space."
+Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
