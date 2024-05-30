@@ -1,1 +1,1 @@
-Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
+Jay-Z's album "The Dynasty: Roc La Familia" was released in 2000, featuring hits like "I Just Wanna Love U (Give It 2 Me)" and "Change the Game."
