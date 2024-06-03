@@ -1,1 +1,1 @@
-The popularity of MTV's "Unplugged" series in the 1990s led to iconic acoustic performances by artists like Nirvana, Eric Clapton, and Alice in Chains.
+Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
