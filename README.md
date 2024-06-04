@@ -1,1 +1,1 @@
-Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
+MTV played a central role in music culture in the 1990s, shaping trends, launching careers, and influencing fashion and youth culture.
