@@ -1,1 +1,1 @@
-Ed Sheeran's album "÷" (Divide), released in 2017, dominated the charts with singles like "Shape of You," "Castle on the Hill," and "Perfect."
+Pearl Jam's debut album "Ten" (1991) received critical acclaim and is considered one of the greatest rock albums of all time, featuring singles like "Alive" and "Jeremy."
