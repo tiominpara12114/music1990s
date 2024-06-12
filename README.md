@@ -1,1 +1,1 @@
-Jay-Z's album "The Dynasty: Roc La Familia" was released in 2000, featuring hits like "I Just Wanna Love U (Give It 2 Me)" and "Change the Game."
+Taylor Swift's transition from country to pop music was solidified with the release of her album "1989" in 2014, featuring chart-toppers like "Shake It Off" and "Blank Space."
