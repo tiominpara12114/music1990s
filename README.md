@@ -1,1 +1,1 @@
-Drake's "In My Feelings" (2018) inspired the viral "Kiki Challenge," where people filmed themselves dancing alongside moving vehicles, leading to safety concerns and controversy.
+The grunge movement emerged from the Seattle music scene in the early 1990s, with bands like Nirvana, Pearl Jam, and Soundgarden gaining widespread popularity.
