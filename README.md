@@ -1,1 +1,1 @@
-*NSYNC's album "No Strings Attached" debuted at number one on the Billboard 200 chart and set a record for the highest first-week sales at the time.
+Jessica Simpson's debut single "I Wanna Love You Forever" was released in 1999 but gained significant traction in 2000, marking the beginning of her music career.
