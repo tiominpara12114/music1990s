@@ -1,1 +1,1 @@
-The boy band craze continued in 2000 with the success of groups like Backstreet Boys, *NSYNC, and 98 Degrees, dominating the pop music charts.
+BTS, the South Korean boy band, achieved global success in the 2010s, becoming the best-selling artist in South Korea's history and gaining a massive international fanbase.
