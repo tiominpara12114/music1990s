@@ -1,1 +1,1 @@
-BTS, the South Korean boy band, achieved global success in the 2010s, becoming the best-selling artist in South Korea's history and gaining a massive international fanbase.
+Britney Spears's debut single "...Baby One More Time" (1998) propelled her to superstardom and became one of the best-selling singles of all time.
