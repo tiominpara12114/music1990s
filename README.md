@@ -1,1 +1,1 @@
-Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
+The Prodigy's album "The Fat of the Land" (1997) popularized the big beat genre and featured hit singles like "Firestarter" and "Breathe."
