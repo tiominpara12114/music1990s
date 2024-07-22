@@ -1,1 +1,1 @@
-The 1990s saw the rise of electronic music genres like techno, house, and trance, with artists like The Prodigy, Daft Punk, and Fatboy Slim leading the charge.
+Nelly's debut album "Country Grammar" was released in 2000 and became a commercial success, with singles like "Country Grammar (Hot Sh*t)" and "Ride wit Me."
