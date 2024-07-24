@@ -1,1 +1,1 @@
-Mandy Moore's album "I Wanna Be with You" was released in 2000, featuring the title track and other singles that showcased her transition from teen pop to more mature themes.
+Streaming became the dominant form of music consumption, surpassing physical sales and digital downloads by the mid-2010s.
