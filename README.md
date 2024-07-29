@@ -1,1 +1,1 @@
-Tupac Shakur released multiple iconic albums in the 1990s, including "2Pacalypse Now" (1991), "Me Against the World" (1995), and "All Eyez on Me" (1996).
+Nirvana's "Nevermind" (1991) popularized the grunge sound and became an anthem for Generation X, featuring hits like "Smells Like Teen Spirit."
