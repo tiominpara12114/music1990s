@@ -1,1 +1,1 @@
-The rise of grunge fashion, characterized by flannel shirts, ripped jeans, and combat boots, reflected the anti-establishment ethos of the music genre.
+Oasis's album "(What's the Story) Morning Glory?" (1995) became a cultural phenomenon, featuring hits like "Wonderwall" and "Champagne Supernova."
