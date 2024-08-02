@@ -1,1 +1,1 @@
-Eminem's album "The Marshall Mathers LP" was released in May 2000 and became the fastest-selling solo album in US history, propelled by hits like "The Real Slim Shady" and "Stan."
+Jay-Z's album "The Dynasty: Roc La Familia" was released in 2000, featuring hits like "I Just Wanna Love U (Give It 2 Me)" and "Change the Game."
